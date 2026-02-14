@@ -1,1 +1,1 @@
-Marzley-Hub and MedCare Website offers seamless access to healthcare services, appointments, and information. Designed for user convenience, security, and efficiency. Developed with precision and innovation by Marzley Tech Solutions.
+Marzley-Hub http://marzleytech.me/Marzley-Hub-and-MedCare-Website/ and MedCare Website offers seamless access to healthcare services, appointments, and information. Designed for user convenience, security, and efficiency. Developed with precision and innovation by Marzley Tech Solutions.
